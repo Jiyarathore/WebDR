@@ -1,3 +1,6 @@
 ![image](https://github.com/Jiyarathore/WebDR/assets/96529109/4f0541c7-e3e7-4938-889c-370c7d1638fb)
 ![image](https://github.com/Jiyarathore/WebDR/assets/96529109/a3b57da6-e750-4590-8b62-2927fa224646)
 ![image](https://github.com/Jiyarathore/WebDR/assets/96529109/6a26cf23-1cc7-435f-92fc-60d1148a2942)
+![image](https://github.com/Jiyarathore/WebDR/assets/96529109/3c4c115d-2591-4d61-a5aa-baa599baa2bd)
+![image](https://github.com/Jiyarathore/WebDR/assets/96529109/f6c2ba36-b81b-45de-b31c-00e97c349a61)
+![image](https://github.com/Jiyarathore/WebDR/assets/96529109/55e4bb4e-bc4b-4216-ba65-56896aee93b4)
