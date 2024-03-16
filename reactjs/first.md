@@ -1,2 +1,5 @@
 ![image](https://github.com/Jiyarathore/WebDR/assets/96529109/88b19699-72b1-4cf0-a5d6-41fc2fe10437)
 ![image](https://github.com/Jiyarathore/WebDR/assets/96529109/8f3c16ab-afb4-4720-a95c-c4940296c9ad)
+![image](https://github.com/Jiyarathore/WebDR/assets/96529109/34d90d94-0512-491e-a2d8-2fa5acf32940)
+![image](https://github.com/Jiyarathore/WebDR/assets/96529109/0ea81df1-da9f-4841-877c-35ff2c7b04cd)
+![image](https://github.com/Jiyarathore/WebDR/assets/96529109/3a9fdd7f-a381-4ffb-82c6-b4b77238a45d)
